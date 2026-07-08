@@ -1,4 +1,4 @@
-Privacy Policy for Videre
+Privacy Policy for Videre: Photo & Video Viewer
 
 Last updated: 8 July 2026
 
